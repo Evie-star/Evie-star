@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Evie-star
+- 👀 I’m interested in a lot of things
+- 🌱 I’m currently learning (or trying) german, Spanish and some other things
+- 📫 How to reach me:
